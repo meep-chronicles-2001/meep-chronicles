@@ -1,3 +1,7 @@
+![moss](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2b5181e3-92a8-4bc3-8e20-e97a5161372f)
+![orchid](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/16d37540-ced4-4d47-848b-7a262b64580f)
+![me](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/40b3b303-92b1-40f8-9030-b9dbda01a752)
+![heart](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2aa33f1a-7a8f-49be-a799-5b3f361917e6)
 # meep-chronicles
 
 <html>
