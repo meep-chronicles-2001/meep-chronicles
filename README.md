@@ -25,6 +25,23 @@
     I also want to use this space to share some of the art work I admire, and the photos I find pretty or 
     interesting. I want to show people my design aesthetics and personal style.
     </p>
+
+    <b><h3> 09-17-23;SUNDAY;9:18pm;Post-storyboard Analysis</b></h3>
+    Hello all, and welcome back to my page Meep Chronicles. I am just beginning to reflect on the storyboard
+    I created and turned in. I decided to write my story on a girl who learned how to make her father's bread
+    after many years of eating it. It was a nostalgic story for me because it makes me think of my own dad, 
+    and the food he has cooked for me throughout my childhood. I am chilean, so there are many dishes that make
+    me feel comforted, and remind me of my own family. Since I moved out when I was 16, I yearn for these meals, 
+    and wanted to write a story that highlights the importance of them. These meals are more than just delicious,
+    they represent me as a person, my childhood, and the cultures that shaped me. One of my all time favorites of 
+    my dad's is his Cazuela, a chilean soup dish. It has an amazing beef broth base, cooked down with 
+    slow cooked short ribs, celery, squash, potatoes, bell peppers, rice, green beans, and corn. It is served with
+    sides of different salads, pebre-a chilean salsa, and pan amasado, which is the bread I reference in my storyboard. 
+    I grew up with a father that really valued good, homemade meals, and it has shown me how to truly appreciate
+    the food from my chilean culture. I can not wait to continue to learn how to cook the meals my dad has cooked for me 
+    my entire life, and eventually be able to share it with my own kids, and teach them about our chilean culture. 
+    Not being able to grow up in Chile, I felt that food was the closest connection I had to that side of me, and I will
+    continue to use it as a way to feel close with my dad.
     
 <i><h3>here i am !</h3></i>
 <img src = "me.jpg" alt = "Photo of me" width = "333" height = "333" >
