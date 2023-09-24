@@ -1,6 +1,6 @@
 ![moss](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2b5181e3-92a8-4bc3-8e20-e97a5161372f)
 ![orchid](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/16d37540-ced4-4d47-848b-7a262b64580f)
-![me](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/40b3b303-92b1-40f8-9030-b9dbda01a752)
+
 ![heart](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2aa33f1a-7a8f-49be-a799-5b3f361917e6)
 # meep-chronicles
 
@@ -42,9 +42,29 @@
     my entire life, and eventually be able to share it with my own kids, and teach them about our chilean culture. 
     Not being able to grow up in Chile, I felt that food was the closest connection I had to that side of me, and I will
     continue to use it as a way to feel close with my dad.
+
+<b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
+
+Greetings all ! Another week has flown by, and I can't seem to remember where the time went. I have had a lot of midterms 
+the last two weeks, and I am preparing for two that I will be taking on wednesday. I am feeling good about them at the
+moment, so I am hoping for good results. As I think back on the week, one of my highlights was finalizing my story. I had
+a really great time animating the story, and used stop motion to create it all. If I had more time I think I would have 
+redone the drawings in a different style, which I started but didn't have enough time to finish for the project turn in.
+I learned a lot about what it take to create a quality video, that is also entertaining and direct for audiences. I really
+utilized my storyboard as the basis of my video creation, and had to redraw each scene with small changes to make the 
+video appear to have moving objects, rather than it all being still. I wanted it to have a lot of colors to make it 
+more stimulating for viewers. I decided to talk about how I learned to bake my fathers bread pan amasado. I am really
+excited to hear your guys' feedback. It was a lot more meticulous than I was expecting and it took me a long time
+to properly cut and compile all of the scenes. I will attach a link to the video below. If anyone has any suggestions for 
+how I can clean up my work I would love to hear ! It has teachen me how to communicate a story through the internet to 
+others ! If I finish my other version I will insert in here as well :-)
+
+Digital Storytelling: 
+https://youtu.be/Xeupua9d9p8?si=5ngWTX62wLo1XlrM
+
     
 <i><h3>here i am !</h3></i>
-<img src = "me.jpg" alt = "Photo of me" width = "333" height = "333" >
+![me](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/40b3b303-92b1-40f8-9030-b9dbda01a752)
 <br></br>
 
 <p> heres a link to my favorite video <p> 
