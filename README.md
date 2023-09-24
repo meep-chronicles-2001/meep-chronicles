@@ -1,7 +1,4 @@
-![moss](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2b5181e3-92a8-4bc3-8e20-e97a5161372f)
-![orchid](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/16d37540-ced4-4d47-848b-7a262b64580f)
 
-![heart](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2aa33f1a-7a8f-49be-a799-5b3f361917e6)
 # meep-chronicles
 
 <html>
@@ -72,9 +69,9 @@ https://youtu.be/Xeupua9d9p8?si=5ngWTX62wLo1XlrM
 <br></br>
 
 <p><b><i> i love moss ! & more of my favorite photos </i></b></p>
-<img src = "heart.jpg" alt = "heart" width = "222" height = "222" >
-<img src = "moss.jpg" alt = "Moss_lawn" width = "222" height = "222" >
-<img src = "orchid.jpg" alt = "orchid" width = "222" height = "222" >
+![heart](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2aa33f1a-7a8f-49be-a799-5b3f361917e6)
+![moss](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/2b5181e3-92a8-4bc3-8e20-e97a5161372f)
+![orchid](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/16d37540-ced4-4d47-848b-7a262b64580f)
 <br></br>
 
 
