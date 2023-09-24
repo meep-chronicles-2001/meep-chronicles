@@ -1,5 +1,5 @@
 
-# meep-chronicles
+# meep-chronicles; Digital Technology
 
 <html>
 
@@ -41,6 +41,7 @@
     continue to use it as a way to feel close with my dad.
 
 <b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
+https://media0.giphy.com/media/CnLRoQneO2kWHuRg7g/giphy.gif
 
 Greetings all ! Another week has flown by, and I can't seem to remember where the time went. I have had a lot of midterms 
 the last two weeks, and I am preparing for two that I will be taking on wednesday. I am feeling good about them at the
