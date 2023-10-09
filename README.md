@@ -57,6 +57,12 @@ to properly cut and compile all of the scenes. I will attach a link to the video
 how I can clean up my work I would love to hear ! It has teachen me how to communicate a story through the internet to 
 others ! If I finish my other version I will insert in here as well :-)
 
+
+<b><h3> Sunday, 11:16pm: week 6</b></h3>
+
+Hey everyone ! Hope everything has been going well, I’ve been having midterms the last two weeks so i've been busy busy busy ! This week in digital technology we learned about the term community of practice, and watched a few Ted talks about how it relates to social media ! I loved the idea of voluntary participation, it really allows for genuine and authentic interaction and engagement. Social media, or even blogging, allows people to express their opinions and beliefs, and help like minded individuals find one another through their algorithms and search engines. I decided to download and sign up for twitter and pinterest, both of which will allow me to find communities or online groups that share things of interest to me, or help me explore new ideas and concepts. Another one that really allows people to form communities is Reddit. It revolves around different communities where people agree to follow certain community guidelines in order to share ideas, pictures, ideas, questions, discussion prompts, etc ! I’m excited to cultivate my own boards on Pinterest and find new creative crafts or ideas for art projects. I’m in the midst of building and designing my own lampshade, so I’ll have to put some photos of the process on here and show you guys any inspiration I got from stuff I found on Pinterest. 
+I’m also really excited to be able to follow some of my friends on twitter and get to figure out how to use it. It’s gonna be interesting to write and share my first tweet….! I’m hoping to find some new communities through hashtags :-)
+
 Digital Storytelling: 
 https://youtu.be/Xeupua9d9p8?si=5ngWTX62wLo1XlrM
 
