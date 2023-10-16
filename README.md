@@ -66,7 +66,10 @@ I’m also really excited to be able to follow some of my friends on twitter and
 Digital Storytelling: 
 https://youtu.be/Xeupua9d9p8?si=5ngWTX62wLo1XlrM
 
-    
+<b><h3> Sunday, 9:07pm: week 7</b></h3>
+Hey everyone ! I’m back on a Sunday night once again to check in about what I learned this week ! We covered digital literacy and its importance in the modern age. When there is so much misinformation and media bias, it can be very easy for people to start consuming the wrong media sources. When consuming misinformation without knowing, the world we live in becomes a narrowed and controlled place where we are being fed a reality created by others to fulfill certain motives. It can be a dangerous and scary place on the internet, so it’s important to have the proper tools to navigate it in a safe and educated manner. Being able to use the google search filters can be really helpful for finding verified websites like .orgs or research papers. I’ve also found that knowing how to do a quick fact check yourself when opening a site can go a long way. By being able to glance at the different credentials on a website and know if they are trustworthy sources, you will be able to spot any red flags efficiently. I have also found a few online sources that will walk you through the fact checking process. I think it’s also important for people to understand that people often have a motive or bias when they put articles or information into the online world, and that can influence their take or view on a situation and skew it in their favor. Not everyone can be trusted to put out objective information, so by knowing this you can be more aware of what you’re consuming and why. I think it’s a really important tool to have at an early age, since you are easily influenced when you are young, and can be taught things that are inaccurate and damaging. 
+
+
 <i><h3>here i am !</h3></i>
 ![me](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/40b3b303-92b1-40f8-9030-b9dbda01a752)
 <br></br>
