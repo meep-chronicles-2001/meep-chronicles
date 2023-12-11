@@ -52,8 +52,6 @@
 ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/4d401bb9-dfb9-48c3-8fcc-8ba50dc74e4b)
 ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/74e1f090-b93b-45c2-be40-c4dbb0b90f70)
 
-![p5](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/75ece506-f192-4fdf-9eed-59deb40806d9)
-
 
 
 <b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
@@ -72,6 +70,12 @@ excited to hear your guys' feedback. It was a lot more meticulous than I was exp
 to properly cut and compile all of the scenes. I will attach a link to the video below. If anyone has any suggestions for 
 how I can clean up my work I would love to hear ! It has teachen me how to communicate a story through the internet to 
 others ! If I finish my other version I will insert in here as well :-)
+
+![p5](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/75ece506-f192-4fdf-9eed-59deb40806d9) 
+
+![p6](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/417ec469-feab-4ace-93c2-733a6fd96a9a)
+
+
 
     ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/ce9b7770-8ce1-4894-b140-c431cc326867) 
     ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/bc84183c-6ff3-4fdf-ba95-5ae4f0baec3a)
