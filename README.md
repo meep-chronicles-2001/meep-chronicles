@@ -44,11 +44,6 @@
     Not being able to grow up in Chile, I felt that food was the closest connection I had to that side of me, and I will
     continue to use it as a way to feel close with my dad.
 
- 
-    
-    ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/ce9b7770-8ce1-4894-b140-c431cc326867) 
-    ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/bc84183c-6ff3-4fdf-ba95-5ae4f0baec3a)
-
 
 
 <b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
@@ -68,6 +63,8 @@ to properly cut and compile all of the scenes. I will attach a link to the video
 how I can clean up my work I would love to hear ! It has teachen me how to communicate a story through the internet to 
 others ! If I finish my other version I will insert in here as well :-)
 
+    ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/ce9b7770-8ce1-4894-b140-c431cc326867) 
+    ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/bc84183c-6ff3-4fdf-ba95-5ae4f0baec3a)
 
 <b><h3> Sunday, 11:16pm: week 6</b></h3>
 
