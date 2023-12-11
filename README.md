@@ -23,6 +23,8 @@
     interesting. I want to show people my design aesthetics and personal style.
     </p>
 
+    
+
     <b><h3> 09-17-23;SUNDAY;9:18pm;Post-storyboard Analysis</b></h3>
     Hello all, and welcome back to my page Meep Chronicles. I am just beginning to reflect on the storyboard
     I created and turned in. I decided to write my story on a girl who learned how to make her father's bread
@@ -80,10 +82,13 @@ It is me again ! This time I am extra early, writing to you on a Thursday ! I ha
 
 <b><h3> Sunday 3:29pm: 11-05-23 </b></h3>
 Hey everyone ! I am back, and happy to do another update for this week ! This week in class we focused on assistive technologies and its role in today’s world. I think it is crucial that all products are designed to be accessible and usable by all people. There are many people in this world with a variety of different limitations, and it is important to take these limitations into account. After reading the articles, and watching the videos from this week I walked away with a greater awareness of the apps that are out there to help increase the quality of life for people that may struggle with certain day to day tasks. One of the free apps I came across was called “fuelService” which created a line of communication for users and the gas station workers. This line of communication allows people with physical limitations to contact workers to request assistance once arriving at the station, and also shows which stations in the area can offer that support. It asks users to input certain information, like the desired gas type. Once users arrive at the station, there are buttons that they can press to send a pre-automated message to notify workers of their arrival ! I think it is important that we are all made aware of these apps, and continue to work towards a world that is designed to be fully accessible to all people, not just neurotypical, and able-bodied individuals. We can do our part by supporting brands and companies that create products that can be used by all people, or have the ability to be modified both easily and inexpensively to be used by people with mental or physical limitations. It is important that we continue to move forward and grow into a society that is accessible for everyone, rather than just one demographic. 
+![p2](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/6c8e920d-b19a-47b2-a2e9-7100e905f301) 
+
 
 
 <b><h3> Sunday, 9:13pm: 11-12-23 </b></h3>
 Hello again, here I am at the end of the 12th week of the school year ! Only a little over a month left and we are all going on break ! I’m really excited to have some time to myself that I can dedicate solely to work and hobbies. This week in digital technology we designed an accessibility app that would help all people, abled and disabled, contact emergency services in a quick and easy manner. I know how overwhelming it can be to navigate your phone during an emergency, and it must be immensely more difficult if you have any physical or mental limitations. My app has one single screen, rather than multiple, with all buttons needed in one single place. I made sure to include an emergency contacts button, which will forward your location and emergency notification to 911 and your emergency contacts. I also made sure to have a voice enabler that can be enabled with a push of a button or an audio command. This will allow people to navigate through the app, and the buttons easily with voice commands. I also added a feature that always displays your location, time, and date, so when you are contacting emergency services, it is always updated and ready to recite. I think these apps should be more popular, since safety is such a concern these days. It’s important for people our age to be thinking about simple innovations such as this app to help make dangerous situations less dangerous. I think I probably got this idea from the necklace for elders that allow them to click a button for emergency services, but I have never seen it made for people that have to rely on voice command, nor have I seen it provided in a phone platform. 
+![photo](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/e40c2670-afbf-4526-a727-2a9a2355b858) 
 
 
 <b><h3> Sunday, 9:38pm: 11-19-23 </b></h3>
