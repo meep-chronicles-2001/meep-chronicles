@@ -44,7 +44,10 @@
     Not being able to grow up in Chile, I felt that food was the closest connection I had to that side of me, and I will
     continue to use it as a way to feel close with my dad.
 
-    ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/ce9b7770-8ce1-4894-b140-c431cc326867) ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/bc84183c-6ff3-4fdf-ba95-5ae4f0baec3a)
+ 
+    
+    ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/ce9b7770-8ce1-4894-b140-c431cc326867) 
+    ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/bc84183c-6ff3-4fdf-ba95-5ae4f0baec3a)
 
 
 
