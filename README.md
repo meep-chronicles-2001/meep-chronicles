@@ -22,7 +22,9 @@
     I also want to use this space to share some of the art work I admire, and the photos I find pretty or 
     interesting. I want to show people my design aesthetics and personal style.
     </p>
-
+<i><h3>here i am !</h3></i>
+![me](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/40b3b303-92b1-40f8-9030-b9dbda01a752)
+<br></br>
     
 
     <b><h3> 09-17-23;SUNDAY;9:18pm;Post-storyboard Analysis</b></h3>
@@ -42,7 +44,9 @@
     Not being able to grow up in Chile, I felt that food was the closest connection I had to that side of me, and I will
     continue to use it as a way to feel close with my dad.
 
-    
+    ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/ce9b7770-8ce1-4894-b140-c431cc326867) ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/bc84183c-6ff3-4fdf-ba95-5ae4f0baec3a)
+
+
 
 <b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
 https://media0.giphy.com/media/CnLRoQneO2kWHuRg7g/giphy.gif
