@@ -22,6 +22,8 @@
     I also want to use this space to share some of the art work I admire, and the photos I find pretty or 
     interesting. I want to show people my design aesthetics and personal style.
     </p>![butterfly](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/82d7ee8f-778c-4d02-8067-f8a20fa0a78d)
+
+    
 ![nightsky](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/94ead0cb-ad47-46dd-8118-388a2368ec83)
 
 <i><h3>here i am !</h3></i>
