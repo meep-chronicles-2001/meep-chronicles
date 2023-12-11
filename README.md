@@ -21,6 +21,7 @@
     making a lamp shade, and a new necklace for myself. I would love to show you guys them soon !
     I also want to use this space to share some of the art work I admire, and the photos I find pretty or 
     interesting. I want to show people my design aesthetics and personal style.
+    
     </p>![butterfly](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/82d7ee8f-778c-4d02-8067-f8a20fa0a78d)
 
     
@@ -50,6 +51,9 @@
 
 ![p3](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/4d401bb9-dfb9-48c3-8fcc-8ba50dc74e4b)
 ![p4](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/74e1f090-b93b-45c2-be40-c4dbb0b90f70)
+
+![p5](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/75ece506-f192-4fdf-9eed-59deb40806d9)
+
 
 
 <b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
