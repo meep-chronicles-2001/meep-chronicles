@@ -40,6 +40,8 @@
     Not being able to grow up in Chile, I felt that food was the closest connection I had to that side of me, and I will
     continue to use it as a way to feel close with my dad.
 
+    
+
 <b><h3> 09-24-23;SUNDAY;4:08pm; Reflection on Digital Storytelling </b></h3>    
 https://media0.giphy.com/media/CnLRoQneO2kWHuRg7g/giphy.gif
 
