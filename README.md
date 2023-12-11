@@ -147,6 +147,10 @@ i dont have any photos that relate to this week's material so I am just gonna up
 <b><h3> Sunday, 11:25pm: 12-3-23 </b></h3>
 Hello everyone ! I’m back from break and here writing to you for one of the last times this semester. This week we used the time to catch up on old work, but I have kept up to date with everything this semester so I just got to relax from this class. I spent my free time working on my craft projects. I am currently in the process of making a doll. It is a bit frustrating making tiny clothes and I honestly don’t know if I will ever do it again. After I finish with this project I am going to finish the soldering process of my lampshade project. I am getting excited for the actual shade design process, and choosing the colors and beading pattern. I want the color palette to be red, purple, and burnt orange…I will have to come back later and post some updates. I don’t think I will stop blogging after this…it’s just going to become a place to display all my art projects I think. Maybe I will post photos of my halloween costume/jewelry design because that was pretty fun. I wonder what project I will start next. I think it’d be a lot easier to make the doll if I had a sewing machine but I don’t. It works out I just get pretty sloppy with it….kind of suits what I was going for. I enjoyed sculpting the head the most… should’ve gotten the eyes before baking it. Now I know,,, but I will never do this again so I don’t know for next time. I would love to take another ceramics class but my schedules are so full next semester and the class is full too. I wonder if I can use the facilities on certain days if I’m not a student. I’ll have to look into it.
 
+![p19](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/00444ae2-9103-4dd0-b0f2-5288d892cbdd)
+
+![p18](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/4c9fd5d3-cb91-46e4-b469-7db0a26bea4d)
+
 <i><h3>here i am !</h3></i>
 ![me](https://github.com/meep-chronicles-2001/meep-chronicles/assets/144637860/40b3b303-92b1-40f8-9030-b9dbda01a752)
 <br></br>
